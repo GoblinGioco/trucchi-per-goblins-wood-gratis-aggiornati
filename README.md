@@ -5,17 +5,14 @@ Ehi amico, se sei finito su questa pagina significa che anche tu stai passando l
 Questa fantastica guida nasce proprio per darti la soluzione definitiva a ogni singolo ostocolo. Grazie ai **trucchi per Goblins Wood**, tutto si potrà risolvere in pochissimi istanti. Non dovrai più guardare con invidia i giocatori che scalano le classifiche globali solo perché spendono centinaia di euro nel negozio ufficiale. Utilizzando i nostri **trucchi per Goblins Wood**, potrai finalmente bypassare tutti i blocchi artificiali creati dagli sviluppatori per costringerti a pagare. Immagina di poter sbloccare ogni singola area, potenziare le tue truppe al massimo livello e dominare ogni sfida senza spendere un solo centesimo. È arrivato il momento di riprenderti il divertimento che meriti e di trasformare la tua sessione di gioco in un'esperienza leggendaria.
 
 ---
+
 <div align="center">
 
-<h1>⬇️ ⬇️ ⬇️</h1>
-
 <h1>
-<a href="https://paginadownload.netlify.app/">
-🚀 CLICCA QUI PER SCARICARE I TRUCCHI 🚀
+<a href="https://shr.pn/goblingioco">
+🫵🫵 CLICCA QUI PER SCARICARE I TRUCCHI 🫵🫵
 </a>
 </h1>
-
-<h1>⬆️ ⬆️ ⬆️</h1>
 
 </div>
 
@@ -88,14 +85,13 @@ Attivando i **trucchi per Goblins Wood**, abbatterai ogni barriera e trasformera
 
 <div align="center">
 
-<h1>⬇️ ⬇️ ⬇️</h1>
-
 <h1>
-<a href="https://paginadownload.netlify.app/">
-🚀 CLICCA QUI PER SCARICARE I TRUCCHI 🚀
+<a href="https://shr.pn/goblingioco">
+🫵🫵 CLICCA QUI PER SCARICARE I TRUCCHI 🫵🫵
 </a>
 </h1>
 
+</div>
 <h1>⬆️ ⬆️ ⬆️</h1>
 
 </div>
